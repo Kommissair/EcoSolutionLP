@@ -2,7 +2,7 @@ DevnProgrammer Here!!!!
 
 Note:
 
-Thank you for purchasing this landing page template, I hope you like it.
+This is the preview only of the template if you want to purchase this please visit this(to be updated).
 
 Remember:
 
